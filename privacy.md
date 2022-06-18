@@ -1,6 +1,6 @@
 Privacy Policy and Statement
 
-We regard user information security and privacy protection as our "lifeline". We adhere to the "everything based on user value" philosophy, and strive to improve the transparency of information processing, enhance your convenience of information management, and protect your information and communication security. We strictly abide by laws and regulations and follow the following privacy protection principles to provide you with safer and more reliable services.
+We regard user information security and privacy protection as our "lifeline". We adhere to the "everything based on user value" philosophy, and strive to improve the transparency of information processing, enhance your convenience of information management, and protect your information and communication security. We strictly abide by laws and regulations and follow the following privacy protection principles to provide you with safer and more reliable services..
 
 Safe and reliable：We make every effort to prevent your information from being leaked, damaged or lost through reasonable and effective information security technology and management processes.
 Independent choice：We provide you with convenient information management options so you can make the right choices and manage your personal information.
